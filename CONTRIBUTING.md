@@ -12,4 +12,4 @@
 
 * Ne créer pas d'issue et de PR avant d'avoir un retour positif sur vos idées
 
-Merci! :heart: :heart: :heart: 
+Merci Beaucoup! :heart: :heart: :heart: 
